@@ -10,7 +10,7 @@ Thanks for visiting my profile!
 🎓 Graduated in Information Science and Technology from University of Technology (Yatanapon Cyber City), Mandalay, Myanmar.<br>
 🌟 Continue learning to gain knowledge and skills in the field. <br>
 🚀 Passionate to contribute environmental research and analytic field. <br>
-👩‍💻 Love translation and freelance translator.
+
 
 ### Skills<br />
 
