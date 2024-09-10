@@ -1,6 +1,6 @@
 ### Hey there! This is ***Pan***
 
-I'm a current master's degree student. Passionate about using technology to solve real-world problems, looking for new challenges, and excited to learn new things.
+Graduated as Research Master candidate from SIIT, Thammasat University. Passionate about using technology to solve real-world problems, looking for new challenges, and excited to learn new things.
 
 Thanks for visiting my profile!
 
